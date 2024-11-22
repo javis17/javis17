@@ -1,4 +1,4 @@
-Hola, unos robados y modificados y otros desde 0 xd skibidi toilet
+Hola, esto es por pasatiempo :v
 
 <!---
 javis17/javis17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
